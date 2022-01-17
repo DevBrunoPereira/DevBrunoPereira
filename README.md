@@ -1,5 +1,6 @@
 ### Olá! Eu sou Bruno Pereira ✋
 #
+Nerd 🖖🏻, Gamer🎮 e apaixonado por Tecnologia 💻
 
 ### Sou estudante de Analise e Desenvolvimento de Sistema
 
